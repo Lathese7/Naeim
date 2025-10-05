@@ -1,2 +1,0 @@
-# Naeim
-EPILATION STARTUP
